@@ -1,0 +1,2 @@
+# forest competition indices
+ 
